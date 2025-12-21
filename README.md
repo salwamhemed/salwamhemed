@@ -1,4 +1,4 @@
-# 🏄‍♂️ Salwa Mhemed
+# :cat: Salwa Mhemed
 
 **`Engineering Graduate | Looking for a full/part time position Internship in Machine Learning/ Data Science`**
 **`Reach out to me : salwa.mhemed05@gmail.com`**
