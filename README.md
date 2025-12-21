@@ -1,6 +1,6 @@
 # 🏄‍♂️ Salwa Mhemed
 
-**`Engineering Student | Looking for a 4-6 months Internship in AI`**
+**`Engineering Graduate | Looking for a full/part time position Internship in Machine Learning/ Data Science`**
 
 
 
