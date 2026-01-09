@@ -1,6 +1,6 @@
 # :cat: Salwa Mhemed
 
-**`Engineering Graduate | Looking for a full/part time position Internship in Machine Learning/ Data Science`**
+**`Engineering Graduate | Looking for a full/part time position in Machine Learning/ Data Science`**
 
 
 
